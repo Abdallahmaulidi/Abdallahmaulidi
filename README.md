@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abdallahmaulidi
-- 👀 I’m interested in cyber security profession 
+- 👀 I’m interested in cyber security 
 - 🌱 I’m currently learning computer science degree 
 - 💞️ I’m looking to collaborate on cyber security team 
 - 📫 How to reach me @Tanzania dar- es- salaam
